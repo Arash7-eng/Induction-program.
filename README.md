@@ -111,6 +111,16 @@ Today we learned how to introduce our self . Our professor told us introduce you
 **Senior**
 Then our senior come in our classroom and gave us a topic to think 3 minutes and speak on it.
 
+**Date:-18july2024**
+
+_**peer interaction**_
+
+Our lecture is started we all know first how to  use _canva_and what is canva?Then we know how to use ?.
+In this lacture we know a lot . We installed canva and doin some activities with our seniors in our mobile phone. Then we all make a pamplate and uplod on a some place.
+
+_Here is what i am making using this sight_
+
+![83BBC995-3435-4D7A-A94E-E3F5177EA8A8](https://github.com/user-attachments/assets/b029c8ab-29ae-4066-bfe1-1113a457d0dc)
 
 
 
