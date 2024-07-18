@@ -4,9 +4,7 @@
 
 _It is about what is going on in induction program_
 
-![e85b6204-cc6a-4d66-887a-f8357848fc05](https://github.com/user-attachments/assets/9626cbf4-ad63-4c24-8bb1-9a42290c8bb9)
-
-![Scholarship ](https://github.com/user-attachments/assets/a71e2dfa-0855-4cf7-9f5a-11cb07907886)
+![e85b6204-cc6a-4d66-887a-f8357848fc05](https://github.com/user-attachments/assets/882a8866-f59e-4d76-a9ee-9e8279d4f5a1)
 
 
 In our auditorium there are so many things which our professors and our guide and our seniors told us . In our induction program all told us how to anywork and how to inhance your skills . 
