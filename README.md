@@ -123,6 +123,41 @@ _Here is what i am making using this sight_
 ![83BBC995-3435-4D7A-A94E-E3F5177EA8A8](https://github.com/user-attachments/assets/b029c8ab-29ae-4066-bfe1-1113a457d0dc)
 
 
+**Dr.Harwinder singh**
+
+_He is associate NCC Officer (ANO)_
+
+_GNDEC Ludhiana_
+
+_3PB BN NCC Ludhiana Group_
+
+He told us what is the perpose of join NCC .what are the benifites.
+How to join ? how many vacancies are there .
+
+**Pf.Jasvir singh grewal**
+
+_Incharge of NSS_
+
+He also told us how to join NSS and how it is helpful for all student. 
+What is the role of NSS students?
+Duties of NSS Volunteers:
+
+Identify needs. Problems and resources of the community. iii. Plan Programmes and carry out the plans.
+**Aim of NSS:**
+Development of the personality of students through Community Service.
+
+**Objectives of NSS:**
+1. To work with / among people.
+2. To engage in creative and constructive social action.
+3. To enhance his/her knowledge of himself / herself and the community.
+4. To put his/her scholarship to practical use in mitigating at least some of the problems.
+5. To gain skill in the exercise of democratic leadership.
+6. To gain skills in programme development to enable him/her for self-employment.
+7. To bridge the gulf between the educated and the uneducated masses.
+8. To promote the will to serve the weaker section of the community.
+
+![NSS](https://github.com/user-attachments/assets/6e68401c-1159-4892-9bbd-bee7d5888f6d)
+
 
 
 
