@@ -158,6 +158,19 @@ Development of the personality of students through Community Service.
 
 ![NSS](https://github.com/user-attachments/assets/6e68401c-1159-4892-9bbd-bee7d5888f6d)
 
+**Date:-19 July 2024**
+
+**Er.Kanwardeep kalra**
+
+She is a very very confident,understanding,great pot of knowledge.She gave us a huge amount of knowledge.Through a small activity she told us how to prepared our interview and what kind of mistakes do students do in there interview always . Those are selected in the interview which have mostly soft skills there is not compulsory to have hard skills .
+But hard skills a important but firstly you ehance your soft skills for achieving good job.
+
+![C76A3E94-5A00-4A39-9FFB-5AFE255E8271](https://github.com/user-attachments/assets/3d25b938-9491-4d06-8ff3-ccb7dee5b4fe)
+
+![166C6EA5-297E-4ACF-97B8-5664BD3AEFC8](https://github.com/user-attachments/assets/d18003a9-069c-43f6-bc2f-303d3245d260)
+
+At the she says to us always smile don't panic in your interview.To introduce yourself professionally in an interview, start with a polite greeting, state your full name, mention your educational background and relevant work experience
+
 
 
 
