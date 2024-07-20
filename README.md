@@ -1,3 +1,4 @@
+
 # Induction-program
 
 
@@ -185,6 +186,11 @@ _He gave us how to count our bones in our body_
 **Counting of bones:-**
 
 firstly we know that we al have 206 bones but how to count ?thats a question which solve sir with following way:-
+
+![5E694CAC-CD48-481C-9BD5-B894F87E9A28](https://github.com/user-attachments/assets/477b5a8f-296a-410d-9d57-6be534c82b4b)
+
+
+
 
 
 
