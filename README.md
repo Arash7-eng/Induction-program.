@@ -172,9 +172,19 @@ But hard skills a important but firstly you ehance your soft skills for achievin
 At the she says to us always smile don't panic in your interview.To introduce yourself professionally in an interview, start with a polite greeting, state your full name, mention your educational background and relevant work experience
 
 
+**Jaswinder singh**
 
+**Incharge:-IAPT**
 
+![EAAF2C7B-192E-477C-8F97-A044FDF850F0](https://github.com/user-attachments/assets/a7aefde8-ac6c-4fc2-b80b-3523c8a50db6)
 
+He is a very good personality.He is **national awarded**(**shiksha ratan**)
+**(inventor lab on wheels)**. He gave us a huge knowledge about science and mathematics. He told us that nothing is possible in this world with the help of mathematics.
+_He gave us how to count our bones in our body_
+
+**Counting of bones:-**
+
+firstly we know that we al have 206 bones but how to count ?thats a question which solve sir with following way:-
 
 
 
