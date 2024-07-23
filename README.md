@@ -189,8 +189,14 @@ firstly we know that we al have 206 bones but how to count ?thats a question whi
 
 ![5E694CAC-CD48-481C-9BD5-B894F87E9A28](https://github.com/user-attachments/assets/477b5a8f-296a-410d-9d57-6be534c82b4b)
 
+**Date:-22-07-24**
 
+**Dr.SB Singh**
+He is a very nice personality. He thaught us how to understand our self.How to know yourself. He told us pick one page from your copy and pick a pen then write what is your name and from where you complete your study?How much percentage you got in 12th examination and your address anf pin code . your weakness and your shining point.
+He told us ill gave you 3 mint to you and you take a dream and write in your page. Then he collected 
+all pages. from this activity we all students understand what is our hobbies and what are your weaknesses and how we deal with thats all.
 
+**Dr.Pushpinder singh**
 
 
 
