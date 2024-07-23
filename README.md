@@ -198,7 +198,8 @@ all pages. from this activity we all students understand what is our hobbies and
 
 **Dr.Pushpinder singh**
 
-
+He is a very nice personality. He is belong from those family were all the members are mostly doctors.
+He had a huge knowledge and gave to us.He taught us you know what is your skill? in which way you easy learn ? from writing and listening that's depend upon you.He also told us you can understand what is your failure and how i forgot that and win in acutual in life . If we all have any problem then we share with our mentor and got its solutions.
 
 
 
