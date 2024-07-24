@@ -259,3 +259,7 @@ After thats all they teach us about cousmic club .
 
 **Here is its QR CODE**
 ![3E5AEF14-76DD-4266-AD3D-10238B0F5351](https://github.com/user-attachments/assets/9b076b24-4ffa-4e5b-b0c9-86c8b6d81de3)
+
+**Visit Here**
+
+https://causmic.gndec.ac.in/
