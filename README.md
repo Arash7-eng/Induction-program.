@@ -202,8 +202,31 @@ He is a very nice personality. He is belong from those family were all the membe
 He had a huge knowledge and gave to us.He taught us you know what is your skill? in which way you easy learn ? from writing and listening that's depend upon you.He also told us you can understand what is your failure and how i forgot that and win in acutual in life . If we all have any problem then we share with our mentor and got its solutions.
 
 
+**Date:-23 july2024**
+
+**Maths lacture**
+In this lacture sir told us what is homogeneous equation and how can we find it and we do so many sums on the basis of this topic.
+_Definition of Homogeneous equation_
+
+_Variable separation form_
+
+dy/dx=f(x).g(y)
+
+**We also know about integrating factors**
+
+dy/dx+py =Q
+
+**our senior**
+
+_our senior name is sumit kumar who address us about what is best for us for next four years and which is not doing and harmful for us .He also taught us the exam structure_
 
 
+**Date:-24july2024**
+
+**Mr.Gauravdeep singh**
+He is a very nice personality who got so many awards.National awards .
+He is the owner of "IOC". He is belong from a very simple family.His mother is depressed lady and father has a dhabha . He taught us how he succeeded in his life.
+When he was in 1-10th he enjoys a lot and got very nice percent in his 10th exams and got science stream .When he was in 11th he is non serious and he failed in exams then principal called his mother to school and she's cry .At that time he feel very sad and want to do something for his mother then he spent his time to choose which stream is best for his.Then he do his study and got 96.8% and top in district. He share his all physical problems and finenational problems and how it can be solve .
 
 
 
