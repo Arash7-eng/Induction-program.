@@ -224,9 +224,38 @@ _our senior name is sumit kumar who address us about what is best for us for nex
 **Date:-24july2024**
 
 **Mr.Gauravdeep singh**
+
 He is a very nice personality who got so many awards.National awards .
 He is the owner of "IOC". He is belong from a very simple family.His mother is depressed lady and father has a dhabha . He taught us how he succeeded in his life.
-When he was in 1-10th he enjoys a lot and got very nice percent in his 10th exams and got science stream .When he was in 11th he is non serious and he failed in exams then principal called his mother to school and she's cry .At that time he feel very sad and want to do something for his mother then he spent his time to choose which stream is best for his.Then he do his study and got 96.8% and top in district. He share his all physical problems and finenational problems and how it can be solve .
+When he was in 1-10th he enjoys a lot and got very nice percent in his 10th exams and got science stream .When he was in 11th he is non serious and he failed in exams then principal called his mother to school and she's cry .At that time he feel very sad and want to do something for his mother then he spent his time to choose which stream is best for his.Then he do his study and got 96.8% and top in district. He share his all physical problems and finenational problems and how it can be solve . from his lacture i am very impressed because i got such a huge knowledge from that lacture.
 
+**Er.Lakhveer singh**
+**Coordinator CML**
 
+_Lakhveer sir tell us about CML_
 
+![78DAFF99-144C-43D4-BFF5-4D09939ECD42](https://github.com/user-attachments/assets/a6ec635c-1ba3-4f41-b360-87fd2f08412c)
+
+**Mission and vision**
+![7D8F8C84-5584-429A-A8E7-0C197F38FA4B](https://github.com/user-attachments/assets/9b257b96-c768-45f0-95ad-a35abeed3b67)
+
+**List of equipment**
+
+![5A9CBF81-CD69-40AB-AFDE-84F67D8585DE](https://github.com/user-attachments/assets/bd0b0cdc-3368-45d5-9d68-b7fe6b091af7)
+
+**Causmic  club**
+
+After thats all our seniors organised a program through causmic club. In the starting of that particular part there are few performances for us .
+
+_Here are a view_
+
+1.![FA43A4CD-079D-4A37-A8B2-14C4BA069F6D](https://github.com/user-attachments/assets/ab1ddb5b-4665-40c1-b745-d9297b6d591a)
+
+2.![50D38685-A7A6-42D4-8092-16D5015CEC85](https://github.com/user-attachments/assets/426c9c61-d081-43de-b32c-a7478f7b8122)
+
+After thats all they teach us about cousmic club .
+
+![A8A22940-38F4-420D-9315-E8AB09BA86A3](https://github.com/user-attachments/assets/0057c3ec-8855-4844-86e2-e6a5cc915f96)
+
+**Here is its QR CODE**
+![3E5AEF14-76DD-4266-AD3D-10238B0F5351](https://github.com/user-attachments/assets/9b076b24-4ffa-4e5b-b0c9-86c8b6d81de3)
