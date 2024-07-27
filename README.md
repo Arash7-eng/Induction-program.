@@ -272,3 +272,15 @@ First we all go to English lab for our uhv lacture and we gain a huge knowledge 
 ![0BDA2511-9F78-489F-A1FA-6CAAC682082F](https://github.com/user-attachments/assets/a94241d6-7476-40a4-9f12-69272c364b1c)
 
 ![6BE7930F-41AD-47A3-8EA8-02AA42D5D3B6](https://github.com/user-attachments/assets/02f0bfc6-3c5a-43de-808c-272abbe11a9c)
+
+<h2>26july2024"Last Day Of Induction"</h2>
+
+Today is a last day of induction and we all start our day from a "ਮੂਲ ਮੰਤਰ" Then few students do shabad kirtan and we all listen it and cover our heads.
+
+**Meditation Counsellor & homeopathic Practitioner Dr.Kanwalpreet kaur bhatt**
+
+Mam first tell us about what is meditation and what is its benefits then play a movie about meditation and after that we all do meditation 15 mint and feeling very well. Meditation is a very powerful which kill all disease and problems.
+
+![E4BD1801-9F2A-4223-AC25-08A70AA1A7EA](https://github.com/user-attachments/assets/4ccd95d1-94fd-410a-a371-aa45a8c8c175)
+
+After thats there are so many performances are doing by our friends means all firstyear students.
