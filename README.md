@@ -289,6 +289,3 @@ After thats there are so many performances are doing by our friends means all fi
 
 ![BEDFC869-B76B-4068-90CB-C5A7B1297D8C](https://github.com/user-attachments/assets/c5b459f4-2530-409a-ae3b-96dd47a015c5)
 
-
-
-![3074059A-DB0F-43E4-9701-46E0227F2628](https://github.com/user-attachments/assets/7aba4d05-e328-45ad-8dc6-479c66e09eb8
