@@ -287,5 +287,18 @@ After thats there are so many performances are doing by our friends means all fi
 
 <h2>Performance from 1st Year Students</h2>
 
+**1**
 ![BEDFC869-B76B-4068-90CB-C5A7B1297D8C](https://github.com/user-attachments/assets/c5b459f4-2530-409a-ae3b-96dd47a015c5)
 
+**2**
+![B066100A-6F31-4C77-9A5F-05D811EC4DDA](https://github.com/user-attachments/assets/8bad4264-ea8d-4f37-86a4-bdf278092cdb)
+
+**3**
+![78488473-E1AE-4E6E-8499-0A62EA42204F](https://github.com/user-attachments/assets/05e45a99-2575-40b9-8f15-035af6f38096)
+
+
+**4**
+![083A4DCB-60F2-47D2-B9DB-A84A49B35C79](https://github.com/user-attachments/assets/76f7a2f6-39f4-4856-b151-11ef8a6d2955)
+
+**5**
+![A738627F-C2BA-47CD-8792-0A9B3F3D609D](https://github.com/user-attachments/assets/8ff5746d-400d-4327-92f3-b250186964bd)
