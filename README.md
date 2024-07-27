@@ -284,3 +284,11 @@ Mam first tell us about what is meditation and what is its benefits then play a 
 ![E4BD1801-9F2A-4223-AC25-08A70AA1A7EA](https://github.com/user-attachments/assets/4ccd95d1-94fd-410a-a371-aa45a8c8c175)
 
 After thats there are so many performances are doing by our friends means all firstyear students.
+
+<h2>Performance from 1st Year Students</h2>
+
+![BEDFC869-B76B-4068-90CB-C5A7B1297D8C](https://github.com/user-attachments/assets/c5b459f4-2530-409a-ae3b-96dd47a015c5)
+
+
+
+![3074059A-DB0F-43E4-9701-46E0227F2628](https://github.com/user-attachments/assets/7aba4d05-e328-45ad-8dc6-479c66e09eb8
