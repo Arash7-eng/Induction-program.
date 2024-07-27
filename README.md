@@ -1,7 +1,7 @@
 
 <h1>Induction-program</h1>
 
-**Date:-11July2024**
+<h2>Date:-11July2024</h2>
 
 _It is about what is going on in induction program_
 
@@ -48,7 +48,7 @@ Persistence
 
 Patience
 
-**Date:-12july2024**
+<h2>Date:-12july2024</h2>
 
 **UHV LECTURE**
 
@@ -74,7 +74,7 @@ Leading to Harmony**: It ultimately needs to promote harmony within the individu
 
 _In this lacture we learned a lot._
 
-**Date:-15july2024**
+<h2>Date:-15july2024</h2>
 
 Today we reach to auditorium and
 Dr.Randhir sir tell us how to 
@@ -100,7 +100,7 @@ _4Years life@B tech_
 Sir is a also good . He started his lacrure from back of the auditorium.
 To pay some attention form the audious . He gave us huge amount of knowledge also told us how to judge a person from its pose .
 
-**Date:-16 july2024**
+<h3>Date:-16 july2024</h3>
 
 **English activities**
 
@@ -111,7 +111,7 @@ Today we learned how to introduce our self . Our professor told us introduce you
 **Senior**
 Then our senior come in our classroom and gave us a topic to think 3 minutes and speak on it.
 
-**Date:-18july2024**
+<h2>Date:-18july202</h2>
 
 _**peer interaction**_
 
@@ -158,7 +158,7 @@ Development of the personality of students through Community Service.
 
 ![NSS](https://github.com/user-attachments/assets/6e68401c-1159-4892-9bbd-bee7d5888f6d)
 
-**Date:-19 July 2024**
+<h2>Date:-19 July 2024</h2>
 
 **Er.Kanwardeep kalra**
 
@@ -188,7 +188,7 @@ firstly we know that we al have 206 bones but how to count ?thats a question whi
 
 ![5E694CAC-CD48-481C-9BD5-B894F87E9A28](https://github.com/user-attachments/assets/477b5a8f-296a-410d-9d57-6be534c82b4b)
 
-**Date:-22-07-24**
+<h2>Date:-22-07-24</h2>
 
 **Dr.SB Singh**
 He is a very nice personality. He thaught us how to understand our self.How to know yourself. He told us pick one page from your copy and pick a pen then write what is your name and from where you complete your study?How much percentage you got in 12th examination and your address anf pin code . your weakness and your shining point.
@@ -201,7 +201,7 @@ He is a very nice personality. He is belong from those family were all the membe
 He had a huge knowledge and gave to us.He taught us you know what is your skill? in which way you easy learn ? from writing and listening that's depend upon you.He also told us you can understand what is your failure and how i forgot that and win in acutual in life . If we all have any problem then we share with our mentor and got its solutions.
 
 
-**Date:-23 july2024**
+<h2>Date:-23 july2024</h2>
 
 **Maths lacture**
 In this lacture sir told us what is homogeneous equation and how can we find it and we do so many sums on the basis of this topic.
@@ -220,7 +220,7 @@ dy/dx+py =Q
 _our senior name is sumit kumar who address us about what is best for us for next four years and which is not doing and harmful for us .He also taught us the exam structure_
 
 
-**Date:-24july2024**
+<h2>Date:-24july2024</h2>
 
 **Mr.Gauravdeep singh**
 
@@ -259,6 +259,6 @@ After thats all they teach us about cousmic club .
 **Here is its QR CODE**
 ![3E5AEF14-76DD-4266-AD3D-10238B0F5351](https://github.com/user-attachments/assets/9b076b24-4ffa-4e5b-b0c9-86c8b6d81de3)
 
-**Visit Here**
+<h2>Visit Here</h2>
 
 https://causmic.gndec.ac.in/
