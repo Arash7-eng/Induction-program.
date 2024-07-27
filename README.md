@@ -262,3 +262,13 @@ After thats all they teach us about cousmic club .
 <h2>Visit Here</h2>
 
 https://causmic.gndec.ac.in/
+
+<h2>25july2024</h2>
+
+First we all go to English lab for our uhv lacture and we gain a huge knowledge from that lacture.Then we do to our next lacture which is about peer interaction and we got a huge knowledge from this lacture and this lacture is taught by our seniors .
+
+<h3>Some pictures about that</h3>
+
+![0BDA2511-9F78-489F-A1FA-6CAAC682082F](https://github.com/user-attachments/assets/a94241d6-7476-40a4-9f12-69272c364b1c)
+
+![6BE7930F-41AD-47A3-8EA8-02AA42D5D3B6](https://github.com/user-attachments/assets/02f0bfc6-3c5a-43de-808c-272abbe11a9c)
