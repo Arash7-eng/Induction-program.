@@ -228,6 +228,9 @@ He is a very nice personality who got so many awards.National awards .
 He is the owner of "IOC". He is belong from a very simple family.His mother is depressed lady and father has a dhabha . He taught us how he succeeded in his life.
 When he was in 1-10th he enjoys a lot and got very nice percent in his 10th exams and got science stream .When he was in 11th he is non serious and he failed in exams then principal called his mother to school and she's cry .At that time he feel very sad and want to do something for his mother then he spent his time to choose which stream is best for his.Then he do his study and got 96.8% and top in district. He share his all physical problems and finenational problems and how it can be solve . from his lacture i am very impressed because i got such a huge knowledge from that lacture.
 
+![5BF85855-D570-4973-B59B-61B20CCE1533](https://github.com/user-attachments/assets/f1043ae8-0f23-4ea2-8b57-5cad2c004af1)
+
+
 **Er.Lakhveer singh**
 **Coordinator CML**
 
@@ -287,18 +290,7 @@ After thats there are so many performances are doing by our friends means all fi
 
 <h2>Performance from 1st Year Students</h2>
 
-**1**
-![BEDFC869-B76B-4068-90CB-C5A7B1297D8C](https://github.com/user-attachments/assets/c5b459f4-2530-409a-ae3b-96dd47a015c5)
+![DE650964-612B-44CB-9131-815A22311723](https://github.com/user-attachments/assets/20953067-69f8-4931-98ae-7787d83f488f)
 
-**2**
-![B066100A-6F31-4C77-9A5F-05D811EC4DDA](https://github.com/user-attachments/assets/8bad4264-ea8d-4f37-86a4-bdf278092cdb)
+![40714D7C-EAA4-4B2C-A28C-FC222B231AA2](https://github.com/user-attachments/assets/9918191d-eee0-47a4-8878-e66f3ff1b184)
 
-**3**
-![78488473-E1AE-4E6E-8499-0A62EA42204F](https://github.com/user-attachments/assets/05e45a99-2575-40b9-8f15-035af6f38096)
-
-
-**4**
-![083A4DCB-60F2-47D2-B9DB-A84A49B35C79](https://github.com/user-attachments/assets/76f7a2f6-39f4-4856-b151-11ef8a6d2955)
-
-**5**
-![A738627F-C2BA-47CD-8792-0A9B3F3D609D](https://github.com/user-attachments/assets/8ff5746d-400d-4327-92f3-b250186964bd)
